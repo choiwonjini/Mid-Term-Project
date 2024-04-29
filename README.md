@@ -1,1 +1,1 @@
-# Mid-Term-Projectt
+# Mid-Term-Project
